@@ -1,0 +1,1 @@
+Realizamos uma apresentação online na qual cada grupo mostrou seus projetos desenvolvidos para a IBM. Foram apresentadas as propostas e as páginas dos sites. Recebemos feedbacks valiosos da nossa orientadora Katia, além de contribuições das funcionárias e universitárias Luma e Nathalia.
